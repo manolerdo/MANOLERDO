@@ -5,3 +5,4 @@ BEM VINDO AO MEU PERFIL
 - Gamer
 - IG> ManoLerdo
 - email> 000011111640439sp@al.educacao.sp.gov.br
+- A CONDUTA DEFINE O HOMEM
